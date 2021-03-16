@@ -1,0 +1,1 @@
+É um site de venda de eletrônicos como celulares, computadores, tablets, iPads, e também acessórios como teclados, mouses, fones, chips, cartões de memória, capinhas, películas, webcams, cabos, microfones, ring lights, video games entre outros, também oferecendo assistência para todo tipo de aparelho eletrônico.
